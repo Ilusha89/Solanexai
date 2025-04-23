@@ -1,1 +1,1 @@
-# Solanexai
+# SolanexAi_launchpad:airdrops
